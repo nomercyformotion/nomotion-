@@ -1,5 +1,5 @@
 # NoMotionServices
-STOCK: 70k [More Soon]
+STOCK: 70k [100k+ OTW]
 # Prices CASHAPP ONLY
 
 1,000 $5
