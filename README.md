@@ -1,5 +1,5 @@
 # NoMotionServices
-STOCK: 170k
+STOCK: 70k [More Soon]
 # Prices CASHAPP ONLY
 
 1,000 $5
@@ -8,7 +8,7 @@ STOCK: 170k
 4,000 $16
 5,000 $20
 6,000 $24 
-7,000 $27
+7,000 $28
 8,000 $31
 9,000 $35
 10,000 $40
