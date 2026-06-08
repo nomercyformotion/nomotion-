@@ -2,7 +2,7 @@
 # CHECK ACTIVITY FOR INSTANT REPLY
 # STOCK: 70k [100k+ OTW]
 # Prices CASHAPP ONLY
-
+scroll for more
 # 1,000 $5
 # 1,500 $7
 # 2,000 $9
