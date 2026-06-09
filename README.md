@@ -1,6 +1,6 @@
 # NoMotionServices
 # CHECK ACTIVITY FOR INSTANT REPLY
-# STOCK: 70k [100k+ OTW]
+# STOCK: 80k [100k+ OTW]
 # Prices CASHAPP ONLY
 scroll for more
 # 1,000 $5
