@@ -1,4 +1,4 @@
-# NoMotionServices
+# NoMotionServices https://discord.gg/czN8fF34Ws
 # CASHAPP ONLY
 # Active = Available
 # STOCK: 80k [100k+ OTW]
